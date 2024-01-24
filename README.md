@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **maheshrohane7r@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11YVvEz13p478_kXhiiWQPItIRLhUWgdX/view?usp=sharing](https://drive.google.com/file/d/11YVvEz13p478_kXhiiWQPItIRLhUWgdX/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11YVvEz13p478_kXhiiWQPItIRLhUWgdX/view?usp=sharing](https://drive.google.com/file/d/1zlK592W7pvX-3gEeNQP91mfnt_CR8snP/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
