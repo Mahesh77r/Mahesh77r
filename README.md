@@ -3,8 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mahesh77r&label=Profile%20views&color=0e75b6&style=flat" alt="mahesh77r" /> </p>
 
-- 🔭 I’m currently working on DSA
-
 - 👨‍💻 All of my projects are available at [https://github.com/Mahesh77r?tab=repositories](https://github.com/Mahesh77r?tab=repositories)
 
 - 💬 Ask me about **MERN Stack, Flutter**
